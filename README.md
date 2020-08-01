@@ -1,4 +1,4 @@
-====== Are our villains queer? Are our gays dead?
+# Are our villains queer? Are our gays dead?
 
 
 Como parte da comunidade LGBT, é muito comum ver arquétipos seguidos pela média no que toca a representatividade de personagens: a invisibilidade, o final trágico, ou a maldade. Existe um fenômeno conhecido como "queer coding", em que características/esteriótipos gays são adicionados à personagens, podendo ou não ter a orientação sexual/identidade de gênero 100% confirmada. É claro que, para fins deste estudo, trabalhamos apenas com vilões que são canônicamente (declarados em algum ponto de suas histórias) parte da comunidade, então existe um campo inexplorado de personagens que são tidos como heterossexuais que caem dentro do queer coding.
