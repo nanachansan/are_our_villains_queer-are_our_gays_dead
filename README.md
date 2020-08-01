@@ -5,4 +5,4 @@ Como parte da comunidade LGBT, é muito comum ver arquétipos seguidos pela méd
 
 Outro ângulo também explorado foi um arquétipo conhecido como "kill your gays", muito visto em filmes (de romance ou coming of age) com personagens gays. Apesar de muito sofrer e lutar, no final, um dos gays tem alguma doença/sofre acidente e morre. Esse tipo de "representatividade" é particularmente nociva, porque tira a perspectiva de muitos jovens LGBT de terem vidas mais longas/seguirem seus sonhos e, em diversos filmes inclusive, a morte vem da AIDS, atribuida (de forma errônea) a um mal que apenas afeta homens gays, por exemplo. É importante haver a desconstrução de que pessoas LGBT não apenas não podem ter um final feliz, mas são obrigadas a pagar com sua vida no final de tudo.
 
-![gif da bandeira LGBT balançando](https://media3.giphy.com/media/fXc70o9YOnocc0j8QO/source.gif "Bandeira LGBT arco-íris balançando")
+![gif da bandeira LGBT balançando ao vendo com pride escrito atrás](https://giphy.com/gifs/design-rainbow-typography-d1Gv2hiFckqPHFjG "Bandeira LGBT arco-íris balançando ao vento")
